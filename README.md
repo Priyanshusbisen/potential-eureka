@@ -1,2 +1,2 @@
 # potential-eureka
-My first project on GitHub.
+i love :pizza: :coffee: and :dancer:
